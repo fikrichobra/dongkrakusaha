@@ -1,2 +1,0 @@
-# dongkrakusaha
-GitHub Pages
